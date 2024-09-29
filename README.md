@@ -2,6 +2,10 @@
 
 19 sec ago - The first thing Hall of Fame fighter Shane Mosley does is reassure you that he is OK and lucid.
 
+[**➡️ ➤➤CLICK TO WATCH HERE LIVE➡️**](https://celebrity-boxing.blogspot.com/2024/09/official-celebrity-boxing-kofroth-vs.html)
+
+[**➡️ ➤➤CLICK TO WATCH HERE LIVE➡️**](https://celebrity-boxing.blogspot.com/2024/09/official-celebrity-boxing-kofroth-vs.html)
+
 He’s 53, a little wrinkled around the edges of his eyes, and is a freshly minted grandfather. Although he last fought professionally eight years ago, his 60-fight, 23-year career of bumps, bruises, and blood has left its residue of an achy body and creaky joints. What can’t be discarded, Mosley declares, is the fighter inside — the innate impulse that is still very much a part of him and surges with the same vitality as in his prime.
 
 It never goes away, he says. He needs it, like food.
